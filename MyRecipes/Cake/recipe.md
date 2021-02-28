@@ -1,0 +1,1 @@
+First you have to mix the batter with the milk and egg and flour. Then you add the chocolate chips. Then you put it in the oven. When it comes out put on the frosting, fruits, and extra chocolate chips.
